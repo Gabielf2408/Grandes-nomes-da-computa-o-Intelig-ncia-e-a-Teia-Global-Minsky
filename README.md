@@ -1,0 +1,1 @@
+# Grandes-nomes-da-computa-o-Intelig-ncia-e-a-Teia-Global-Minsky
